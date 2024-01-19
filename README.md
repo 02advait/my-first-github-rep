@@ -1,4 +1,4 @@
 # my-first-github-rep
-ffdsschgcmfrtxnghhgdh
+getting started
 <br>
-jtfjjfjf
+ok i jumped to next line
